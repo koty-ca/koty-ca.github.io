@@ -1,0 +1,12 @@
+---
+---
+
+@import "{{ site.theme }}";
+
+.page-header {
+    background-color: #010101;
+    background-image: url("../images/gray-cat-600.jpg");
+    background-position: left;
+    background-repeat: no-repeat; /* Do not repeat the image */
+    background-size: contain; 
+}
