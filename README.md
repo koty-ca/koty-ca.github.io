@@ -1,5 +1,5 @@
 ## SERVICES OFFERTS
-J’offre un service de gardiennage pour chats avec visite au domicile. J’habite dans le quartier du Triangle, proche des métros De la Savane et Namur. 
+J’offre un service de gardiennage pour chats avec visite au domicile. J’habite Montréal, dans le quartier du Triangle (proche des métros De la Savane et Namur).
 
 Services offerts durant la visite : donner la nourriture, l’eau, nettoyer la litière, brossage, jeux, promenade en harnais, médication s’il y a lieu.
 
