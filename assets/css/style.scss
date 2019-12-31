@@ -4,11 +4,13 @@
 @import "{{ site.theme }}";
 
 .page-header {
-    background-color: #010101;
-    background-image: url("../images/gray-cat-600.jpg");
-    background-position: left;
+    color: #222222;
+    background-color: #fefacb;
+    background-image: url("../images/shadow.jpg");
+    background-position: right;
     background-repeat: no-repeat; /* Do not repeat the image */
-    background-size: contain; 
+    background-size: contain;
+    box-shadow: 0px 0px 8px grey;
 }
 
 ul.icons a:hover {
