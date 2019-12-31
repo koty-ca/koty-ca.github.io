@@ -16,11 +16,11 @@ Après chaque visite, un courriel sera envoyé au propriétaire de l’animal po
 
 
 ## PRISE DE RENDEZ-VOUS
-Envoyez votre demande un mois avant la date prévue de votre absence à : stephanie@koty.ca
+Envoyez votre demande idéalement un mois avant la date prévue de votre absence à : <stephanie@koty.ca>
 
 Préciser dans votre demande les dates souhaitées pour les visites, joindre si possible une photo de votre animal de compagnie et un bref descriptif des services demandés.
 
-Une première rencontre sera organisée pour voir votre animal de compagnie, définir ses besoins et récupérer les clés. 
+Une première rencontre sera organisée pour prendre contact avec votre animal de compagnie, définir ses besoins et récupérer les clés. 
 
 Il est possible que votre demande ne soit pas acceptée pour diverses raisons (chevauchement de plusieurs demandes en même temps, animal demandant des soins spéciaux, demande à plus d’une heure de trajet en transport en commun de mon domicile, etc.). Dans ce cas, je vous en informerais dans les meilleurs délais.
 
@@ -28,7 +28,10 @@ Il est possible que votre demande ne soit pas acceptée pour diverses raisons (c
 ## PAIEMENTS
 Le paiement du service de gardiennage et remboursement de factures doivent se faire par virement Intérac ou Paypal.
 
+&nbsp;
 
 MERCI DE FAIRE AFFAIRE AVEC KOTY.CA
 
 AU PLAISIR DE VOUS RENCONTRER, VOUS ET VOTRE ANIMAL DE COMPAGNIE !
+
+*STÉPHANIE*
