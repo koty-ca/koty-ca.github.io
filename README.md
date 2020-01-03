@@ -30,8 +30,6 @@ Le paiement du service de gardiennage et remboursement de factures doivent se fa
 
 &nbsp;
 
-MERCI DE FAIRE AFFAIRE AVEC KOTY.CA
-
 AU PLAISIR DE VOUS RENCONTRER, VOUS ET VOTRE ANIMAL DE COMPAGNIE !
 
 *STÉPHANIE*
