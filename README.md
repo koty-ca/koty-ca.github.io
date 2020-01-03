@@ -1,5 +1,5 @@
 ## SERVICE DE GARDE POUR CHATS À VOTRE DOMICILE VIA PAWSHAKE
-Je suis inscrite sur Pawshake qui est une plate-forme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. Il y a plusieurs services offerts par cette plate-forme mais en ce qui me concerne, j’offre seulement des visites à domicile pour garde de chats. J’habite Montréal, dans le quartier du Triangle (proche des métros De la Savane et Namur).
+Je suis inscrite sur Pawshake qui est une plate-forme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. Il y a plusieurs services offerts par cette plate-forme mais en ce qui me concerne, j’offre seulement des visites à domicile pour garde de chats. J’habite Montréal, dans le secteur du Triangle (proche des stations De la Savane et Namur).
 
 Services offerts durant la visite : donner de la nourriture et de l’eau, nettoyer la litière, brossage, jeux, promenade en harnais, médication s’il y a lieu.
 
