@@ -48,7 +48,7 @@ During a visit, I will give some food and water, clean the litter, groom the cat
 
 After each visit, I will provide a status by email to the pet owner, including photos in attachment.
 
-You can view my profile and client reviews by going to [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/miaouuuuuuuuuu-3785857).
+You can view my profile and client reviews by going to [Pawshake.ca](https://en.pawshake.ca/petsitters/montreal-qc/miaouuuuuuuuuu-3785857).
 
 #### Rates
 * $ 15: one hour visit per day.
