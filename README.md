@@ -19,7 +19,7 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 ## CENTRES D'INTÉRÉTS ET FORMATIONS
 * J'ai suivi un cours de premiers soins pour animaux de compagnie avec attestation délivrée par Ambulance Saint-Jean.
 * Formations en ligne sur le comportement et bien-être animal (à venir).
-* Bénévolat dans un refuge (à venir).
+* Bénévole à la SPCA de Montréal depuis le 21 janvier 2020.
 
 &nbsp;
 
@@ -60,7 +60,7 @@ You can view my profile and client reviews by going to [Pawshake.ca](https://en.
 ## CENTERS OF INTEREST AND TRAINING
 * Trained to provide first aid to pets (training and certification provided by St. John Ambulance).
 * Online training courses on animals behavior and wellness (upcoming).
-* Volunteer at a shelter (upcoming).
+* Volunteer at SPCA Montreal since January 21st, 2020.
 
 &nbsp;
 
