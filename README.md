@@ -17,9 +17,9 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 **Seulement** par la plate-forme de réservation Pawshake. Noter que le paiement s'effectuera aussi par Pawshake.
 
 ## CENTRES D'INTÉRÉTS ET FORMATIONS
-* J'ai suivi un cours de premiers soins pour animaux de compagnie avec attestation délivrée par Ambulance Saint-Jean.
-* Formations en ligne sur le comportement et bien-être animal (à venir).
-* Bénévole à la SPCA de Montréal depuis le 21 janvier 2020.
+* Avril 2020 : Formation sur le **comportement félin et canin à la maison, clinique, pension et au refuge** (environ 7 h de cours en ligne). Formatrice : Marine Cassoret, Ph.D, Ethologue, AZCA.
+* 2020 : **Bénévolat à la SPCA au programme de socialisation des chats.** Application des différentes techniques de socialisation des chats afin de maximiser leur potentiel d’adoption. Nettoyage des cages, bols, litières, couvertures, jouets, en respectant les normes de biosécurité au sein d’un refuge.
+* 6 avril 2019 : Cours de **premiers soins pour animaux de compagnie** (une journée au DMV Dorval). Attestation d’ambulance Saint-Jean.
 
 &nbsp;
 
@@ -58,9 +58,9 @@ You can view my profile and client reviews by going to [Pawshake.ca](https://en.
 **Only** via the Pawshake online booking platform. Note that payment will also be done via Pawshake.
 
 ## CENTERS OF INTEREST AND TRAINING
-* Trained to provide first aid to pets (training and certification provided by St. John Ambulance).
-* Online training courses on animals behavior and wellness (upcoming).
-* Volunteer at SPCA Montreal since January 21st, 2020.
+* April 2020: Training on **feline and canine behavior at home, clinic, boarding house and shelter** (around 7 hours of online lessons). Trainer: Marine Cassoret, Ph.D, Ethologist, AZCA.
+* 2020: **Volunteering at the SPCA in the cat socialization program.** Application of different socialization techniques for cats in order to maximize their adoption potential. Cleaning of cages, bowls, litter boxes, blankets, toys, respecting biosecurity standards within a shelter.
+* April 6, 2019: **First aid course for pets** (one day at DMV Dorval). St. John Ambulance Certificate.
 
 &nbsp;
 
