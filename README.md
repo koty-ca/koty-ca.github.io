@@ -16,7 +16,7 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 #### Prise de rendez-vous 
 **Seulement** par la plate-forme de réservation Pawshake. Noter que le paiement s'effectuera aussi par Pawshake.
 
-## CENTRES D'INTÉRÉT ET FORMATIONS
+## CENTRES D'INTÉRÊT ET FORMATIONS
 * Avril 2020 : Formation sur le **comportement félin et canin à la maison, clinique, pension et au refuge** (environ 7 h de cours en ligne). Formatrice : Marine Cassoret, Ph.D, Ethologue, AZCA.
 
 * 2020 : **Bénévolat à la SPCA au programme de socialisation des chats.** Application des différentes techniques de socialisation des chats afin de maximiser leur potentiel d’adoption. Nettoyage des cages, bols, litières, couvertures, jouets, en respectant les normes de biosécurité au sein d’un refuge.
