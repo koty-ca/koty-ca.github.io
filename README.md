@@ -62,9 +62,9 @@ You can view my profile and client reviews by going to [Pawshake.ca](https://en.
 **Only** via the Pawshake online booking platform. Note that payment will also be done via Pawshake.
 
 ## CENTERS OF INTEREST AND TRAINING
-* May/June 2020: Training on **Animal Behaviour and Welfare (dogs, cats, poultry, pigs, cows)** (7 modules of online lessons). Coursera, The University of Edinburgh (Scotland, UK).
+* May/June 2020: Training on **Animal behaviour and welfare (dogs, cats, poultry, pigs, cows)** (7 modules of online lessons). Coursera, The University of Edinburgh (Scotland, UK).
 
-* April 2020: Training on **feline and canine behavior at home, clinic, boarding house and shelter** (around 7 hours of online lessons). Trainer: Marine Cassoret, Ph.D, Ethologist, AZCA.
+* April 2020: Training on **Feline and canine behavior at home, clinic, boarding house and shelter** (around 7 hours of online lessons). Trainer: Marine Cassoret, Ph.D, Ethologist, AZCA.
 
 * 2020: **Volunteering at the SPCA in the cat socialization program.** Application of different socialization techniques for cats in order to maximize their adoption potential. Cleaning of cages, bowls, litter boxes, blankets, toys, respecting biosecurity standards within a shelter.
 
