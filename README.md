@@ -17,6 +17,8 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 **Seulement** par la plate-forme de réservation Pawshake. Noter que le paiement s'effectuera aussi par Pawshake.
 
 ## CENTRES D'INTÉRÊT ET FORMATIONS
+* Mai/Juin 2020 : Formation sur le **Comportement et bien-être animal (chiens, chats, volaille, cochons, vaches)** (7 modules en ligne). Coursera, Université d'Édimbourg (Écosse, R-U).
+
 * Avril 2020 : Formation sur le **comportement félin et canin à la maison, clinique, pension et au refuge** (environ 7 h de cours en ligne). Formatrice : Marine Cassoret, Ph.D, Ethologue, AZCA.
 
 * 2020 : **Bénévolat à la SPCA au programme de socialisation des chats.** Application des différentes techniques de socialisation des chats afin de maximiser leur potentiel d’adoption. Nettoyage des cages, bols, litières, couvertures, jouets, en respectant les normes de biosécurité au sein d’un refuge.
@@ -60,6 +62,8 @@ You can view my profile and client reviews by going to [Pawshake.ca](https://en.
 **Only** via the Pawshake online booking platform. Note that payment will also be done via Pawshake.
 
 ## CENTERS OF INTEREST AND TRAINING
+* May/June 2020: Training on **Animal Behaviour and Welfare (dogs, cats, poultry, pigs, cows)** (7 modules of online lessons). Coursera, The University of Edinburgh (Scotland, UK).
+
 * April 2020: Training on **feline and canine behavior at home, clinic, boarding house and shelter** (around 7 hours of online lessons). Trainer: Marine Cassoret, Ph.D, Ethologist, AZCA.
 
 * 2020: **Volunteering at the SPCA in the cat socialization program.** Application of different socialization techniques for cats in order to maximize their adoption potential. Cleaning of cages, bowls, litter boxes, blankets, toys, respecting biosecurity standards within a shelter.
