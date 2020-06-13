@@ -11,7 +11,7 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 
 #### Tarifs	 
 * 16 $ : une visite par jour d’une heure.
-* 24 $ : deux visites par jour de 30 minutes minimum.
+* 25 $ : deux visites par jour de 30 minutes minimum.
 
 #### Prise de rendez-vous 
 **Seulement** par la plate-forme de réservation Pawshake. Noter que le paiement s'effectuera aussi par Pawshake.
@@ -56,7 +56,7 @@ You can view my profile and client reviews by going to [Pawshake.ca](https://en.
 
 #### Rates
 * $ 16: one hour visit per day.
-* $ 24: two 30+ minutes visits per day.
+* $ 25: two 30+ minutes visits per day.
 
 #### Appointment Booking
 **Only** via the Pawshake online booking platform. Note that payment will also be done via Pawshake.
