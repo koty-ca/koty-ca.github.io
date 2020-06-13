@@ -10,7 +10,7 @@ Après chaque visite, un courriel sera envoyé au propriétaire de l’animal po
 Vous pouvez consulter mon profil et les appréciations de mes clients en vous rendant à [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/miaouuuuuuuuuu-3785857).
 
 #### Tarifs	 
-* 15 $ : une visite par jour d’une heure.
+* 16 $ : une visite par jour d’une heure.
 * 24 $ : deux visites par jour de 30 minutes minimum.
 
 #### Prise de rendez-vous 
@@ -55,7 +55,7 @@ After each visit, I will provide a status by email to the pet owner, including p
 You can view my profile and client reviews by going to [Pawshake.ca](https://en.pawshake.ca/petsitters/montreal-qc/miaouuuuuuuuuu-3785857).
 
 #### Rates
-* $ 15: one hour visit per day.
+* $ 16: one hour visit per day.
 * $ 24: two 30+ minutes visits per day.
 
 #### Appointment Booking
