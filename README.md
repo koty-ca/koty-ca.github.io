@@ -17,6 +17,8 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 **Seulement** par la plate-forme de réservation Pawshake. Noter que le paiement s'effectuera aussi par Pawshake.
 
 ## CENTRES D'INTÉRÊT ET FORMATIONS
+* 2020 : Conférences en ligne Chatvoir par Éduchateur (4h chaque) : **Tout savoir pour un chat sans problème**, **Intelligence, perceptions et émotions du chat**, **Communication, agressions et mythes**. 
+
 * Mai/Juin 2020 : Formation sur le **Comportement et bien-être animal (chiens, chats, volaille, cochons, vaches, animaux du zoo)** (7 modules en ligne). Coursera, Université d'Édimbourg (Écosse, R-U).
 
 * Avril 2020 : Formation sur le **Comportement félin et canin à la maison, clinique, pension et au refuge** (environ 7 h de cours en ligne). Formatrice : Marine Cassoret, Ph.D, Ethologue, AZCA.
@@ -62,6 +64,8 @@ You can view my profile and client reviews by going to [Pawshake.ca](https://en.
 **Only** via the Pawshake online booking platform. Note that payment will also be done via Pawshake.
 
 ## CENTERS OF INTEREST AND TRAINING
+* 2020 : Chatvoir online conferences by Educator (4h each) : **Everything you need to know for a problem-free cat**, **Cat intelligence, perceptions and emotions**, **Communication, agressions et myths**. 
+
 * May/June 2020: Training on **Animal behaviour and welfare (dogs, cats, poultry, pigs, cows, zoo animals)** (7 modules of online lessons). Coursera, The University of Edinburgh (Scotland, UK).
 
 * April 2020: Training on **Feline and canine behavior at home, clinic, boarding house and shelter** (around 7 hours of online lessons). Trainer: Marine Cassoret, Ph.D, Ethologist, AZCA.
