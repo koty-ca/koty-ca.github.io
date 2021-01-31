@@ -1,36 +1,57 @@
-[(English content below)](#english-content)
 
-## SERVICE DE GARDIENNAGE POUR CHATS À VOTRE DOMICILE VIA PAWSHAKE
-Je suis inscrite sur Pawshake qui est une plate-forme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. Il y a plusieurs services offerts par cette plate-forme mais en ce qui me concerne, j’offre seulement des visites à domicile pour garde de chats. J’habite Montréal, dans le secteur du Triangle (proche des stations De la Savane et Namur).
+## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR CHATS, OISEAUX, RONGEURS, LAPINS, ANIMAUX EXOTIQUES. 
+J’ai surtout de l’expérience avec les chats mais je suis ouverte à garder d’autres animaux (oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques).
+Je suis inscrite sur Pawshake qui est une plate-forme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
 
-Services offerts durant la visite : donner de la nourriture et de l’eau, nettoyer la litière, brossage, jeux, promenade en harnais, médication s’il y a lieu.
+Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime jouer avec eux, j’aime créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles et des photos régulièrement de vos petits amours !
 
-Après chaque visite, un courriel sera envoyé au propriétaire de l’animal pour l’informer de la situation avec photo(s) en pièce(s) jointe(s).
 
-Vous pouvez consulter mon profil et les appréciations de mes clients en vous rendant à [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/miaouuuuuuuuuu-3785857).
+## MES SERVICES
+* 1 à 2 visites par jour selon les besoins
+* **18 $ pour 1 visite par jour (1 h), 30 $ pour 2 visites par jour (45 min)**
+* Première rencontre gratuite avec remise des clés (port du masque svp)
+* Nettoyage de la litière
+* Nourriture sèche, humide et, eau.
+* Câlins
+* Brossage
+* Jeux
+* Médication (si besoin)
+* Ramassage du courrier
+* Arrosage des plantes
+* Aération du domicile
+* Achat de nourriture si besoin (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d'achats à faire)
+* Rapport après chaque visite avec photos (via plateforme Pawshake)
+* Nettoyage à ma dernière visite : les poignées de portes, les surfaces touchées et les jouets (COVID-19)
+* Retour des clés gratuit au client ou arrangement pour les laisser dans un endroit sécuritaire ou à un concierge (directement à lui ou dans sa boîte aux lettres par exemple)
+* Pourboires acceptés en argent comptant ou par virement Interac
 
-#### Tarifs	 
-* 18 $ : une visite par jour d’une heure.
-* 30 $ : deux visites par jour de 30 minutes minimum.
-* **Rabais offert pour les clients réguliers.**
+Vous pouvez consulter mon profil et les appréciations de mes clients en vous rendant à [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-oiseaux-rongeurs-lapins-animaux-exotiques-3785857).
 
-#### Prise de rendez-vous 
-**Seulement** par la plate-forme de réservation Pawshake. Noter que le paiement s'effectuera aussi par Pawshake.
 
-## CENTRES D'INTÉRÊT ET FORMATIONS
-* 2020 : Conférences en ligne Chatvoir par Éduchateur (4h chaque) : **Tout savoir pour un chat sans problème** / **Intelligence, perceptions et émotions du chat** / **Communication, agressions et mythes**. 
+## PRISE DE RENDEZ-VOUS ET PAIEMENT 
+**Seulement** par la plate-forme de réservation [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-oiseaux-rongeurs-lapins-animaux-exotiques-3785857). 
+
+
+## COURS/CONFÉRENCES 
+* 2020 : 3 Conférences en ligne Chatvoir par Éduchateur (4h chaque) : **Tout savoir pour un chat sans problème** / **Intelligence, perceptions et émotions du chat** / **Communication, agressions et mythes**. 
 
 * Mai/Juin 2020 : Formation sur le **Comportement et bien-être animal (chiens, chats, volaille, cochons, vaches, animaux du zoo)** (7 modules en ligne). Coursera, Université d'Édimbourg (Écosse, R-U).
 
+* 1er mai 2020 : Conférence en ligne Éduchateur **Comment et pourquoi être une clinique Cat Friendly**.
+
 * Avril 2020 : Formation sur le **Comportement félin et canin à la maison, clinique, pension et au refuge** (environ 7 h de cours en ligne). Formatrice : Marine Cassoret, Ph.D, Ethologue, AZCA.
 
-* Janvier à mars 2020 : **Bénévolat à la SPCA au programme de socialisation des chats.** Application des différentes techniques de socialisation des chats afin de maximiser leur potentiel d’adoption. Nettoyage des cages, bols, litières, couvertures, jouets, en respectant les normes de biosécurité au sein d’un refuge.
+* 6 avril 2019 : Cours de **Premiers soins pour animaux de compagnie** (une journée au DMV Montréal). Attestation d’ambulance Saint-Jean.
 
-* 6 avril 2019 : Cours de **premiers soins pour animaux de compagnie** (une journée au DMV Montréal). Attestation d’ambulance Saint-Jean.
+
+## BÉNÉVOLAT
+* Juillet à septembre 2020 : **Bénévolat au Nichoir, refuge pour oiseaux sauvages à Hudson.** Nettoyage des volières des passereaux et des volières aquatiques des oies et des canards. Préparation et distribution de la nourriture aux oiseaux en respectant leur diète. Observations et reports de toutes anomalies au personnel du refuge.
+
+* Janvier à mars 2020 : **Bénévolat à la SPCA au programme de socialisation des chats de l'Annexe.** Application des différentes techniques de socialisation afin de maximiser leur potentiel d’adoption. Nettoyage des cages, bols, litières, couvertures, jouets, en respectant les normes de biosécurité au sein d’un refuge.
 
 &nbsp;
 
-AU PLAISIR DE VOUS RENCONTRER, VOUS ET VOTRE ANIMAL DE COMPAGNIE !
+Merci d’avance pour votre confiance et au plaisir de vous rencontrer, vous et votre animal de compagnie !
 
 *STÉPHANIE*
 
@@ -44,40 +65,4 @@ AU PLAISIR DE VOUS RENCONTRER, VOUS ET VOTRE ANIMAL DE COMPAGNIE !
 
 &nbsp;
 
-<hr/>
-
-<a name="english-content"></a>
-
-## CAT PET SITTING AT YOUR HOME VIA PAWSHAKE
-I am registered on Pawshake, a platform allowing pet owners to find a pet sitter. Although there are several services offered on this platform, I’m only offering home visits for cats. I live in Montreal, in the Triangle area (near the stations De la Savane and Namur).
-
-During a visit, I will give some food and water, clean the litter, groom the cat (brushing), play with the cat, walk the cat (in harness), and give some medication if required.
-
-After each visit, I will provide a status by email to the pet owner, including photos in attachment.
-
-You can view my profile and client reviews by going to [Pawshake.ca](https://en.pawshake.ca/petsitters/montreal-qc/miaouuuuuuuuuu-3785857).
-
-#### Rates
-* $ 18: one hour visit per day.
-* $ 30: two 30+ minutes visits per day.
-* **Discount offered for regular customers.**
-
-#### Appointment Booking
-**Only** via the Pawshake online booking platform. Note that payment will also be done via Pawshake.
-
-## CENTERS OF INTEREST AND TRAINING
-* 2020 : Chatvoir online conferences by Educator (4h each) : **Everything you need to know for a problem-free cat** / **Cat intelligence, perceptions and emotions** / **Communication, agressions et myths**. 
-
-* May/June 2020: Training on **Animal behaviour and welfare (dogs, cats, poultry, pigs, cows, zoo animals)** (7 modules of online lessons). Coursera, The University of Edinburgh (Scotland, UK).
-
-* April 2020: Training on **Feline and canine behavior at home, clinic, boarding house and shelter** (around 7 hours of online lessons). Trainer: Marine Cassoret, Ph.D, Ethologist, AZCA.
-
-* January to March 2020: **Volunteering at the SPCA in the cat socialization program.** Application of different socialization techniques for cats in order to maximize their adoption potential. Cleaning of cages, bowls, litter boxes, blankets, toys, respecting biosecurity standards within a shelter.
-
-* April 6, 2019: **First aid course for pets** (one day at DMV Montreal). St. John Ambulance Certificate.
-
 &nbsp;
-
-I’M LOOKING FORWARD MEETING WITH YOU, YOU AND YOUR PET!
-
-*STEPHANIE*
