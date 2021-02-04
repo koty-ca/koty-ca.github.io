@@ -11,6 +11,7 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 * 1 à 2 visites par jour selon les besoins
 * **Tarif pour les chats, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques** : 18 $ pour 1 visite par jour (1 h), 30 $ pour 2 visites par jour (45 min).
 * **Tarif pour les chiens** : 22 $ pour 1 visite par jour (1h incluant la promenade de 30 min), 35 $ pour 2 visites par jour (45 min incluant la promenade de 20 min). Tarif additionnel de 8 $ par animal supplémentaire.
+* Possibilité d'organiser une visioconférence (via Zoom ou Meet) pour voir l'animal, ses affaires et discuter de ses besoins.
 * Première rencontre gratuite avec remise des clés (port du masque svp)
 * Nettoyage de la litière
 * Nourriture sèche, humide et, eau.
@@ -23,7 +24,7 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 * Aération du domicile
 * Achat de nourriture si besoin (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d'achats à faire)
 * Rapport après chaque visite avec photos (via plateforme Pawshake)
-* Possibilité d'organiser une visioconférence (via Zoom ou Meet) 
+* Possibilité d'organiser une visioconférence (via Zoom ou Meet) pour voir votre animal en direct durant votre absence
 * Nettoyage à ma dernière visite : les poignées de portes, les surfaces touchées et les jouets (COVID-19)
 * Retour des clés gratuit au client ou arrangement pour les laisser dans un endroit sécuritaire ou à un concierge (directement à lui ou dans sa boîte aux lettres par exemple)
 * Pourboires acceptés en argent comptant ou par virement Interac
