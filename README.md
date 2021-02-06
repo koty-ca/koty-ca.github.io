@@ -34,7 +34,7 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 &nbsp;
 
 ## PRISE DE RENDEZ-VOUS ET PAIEMENT 
-**Seulement** par la plate-forme de réservation [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-chiens-oiseaux-rongeurs-lapins-animaux-exotiques-3785857). 
+**Seulement** par la plateforme de réservation [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-chiens-oiseaux-rongeurs-lapins-animaux-exotiques-3785857). 
 
 &nbsp;
 
