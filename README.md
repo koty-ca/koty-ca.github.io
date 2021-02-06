@@ -1,7 +1,7 @@
 
 ## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR CHATS, CHIENS, OISEAUX, RONGEURS, LAPINS, ANIMAUX EXOTIQUES. 
 J’ai surtout de l’expérience avec les chats mais je suis ouverte à garder d’autres animaux (chiens, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques).
-Je suis inscrite sur Pawshake qui est une plate-forme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
+Je suis inscrite sur Pawshake qui est une plateforme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
 
 Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime jouer avec eux, j’aime créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles et des photos régulièrement de vos petits amours !
 
@@ -10,7 +10,7 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 ## MES SERVICES
 * 1 à 2 visites par jour selon les besoins
 * **Tarif pour les chats, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques** : 18 $ pour 1 visite par jour (1 h), 30 $ pour 2 visites par jour (45 min).
-* **Tarif pour les chiens** : 22 $ pour 1 visite par jour (1h incluant la promenade de 30 min), 35 $ pour 2 visites par jour (45 min incluant la promenade de 20 min). Tarif additionnel de 8 $ par animal supplémentaire.
+* **Tarif pour les chiens** : 22 $ pour 1 visite par jour (1 h incluant la promenade de 30 min), 35 $ pour 2 visites par jour (45 min incluant la promenade de 20 min). Tarif additionnel de 8 $ par animal supplémentaire.
 * Possibilité d'organiser une visioconférence (via Zoom ou Meet) pour voir l'animal, ses affaires et discuter de ses besoins.
 * Première rencontre gratuite avec remise des clés (port du masque svp)
 * Nettoyage de la litière
