@@ -61,14 +61,4 @@ Merci d’avance pour votre confiance et au plaisir de vous rencontrer, vous et 
 
 *STÉPHANIE*
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
+![Stéphanie](./assets/images/StephShadow.jpg "Stéphanie")
