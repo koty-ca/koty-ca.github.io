@@ -8,9 +8,9 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 &nbsp;
 
 ## MES SERVICES
-* 1 visite par jour idéalement. Selon mes disponibilités ou si vous habitez très proche de chez moi, à 5-10 min de marche de mon domicile, je peux accepter 2 visites par jour.
-* **Tarif pour les chats, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques** : 18 $ pour 1 visite par jour (1 h), 30 $ pour 2 visites par jour (30 min).
-* **Tarif pour les chiens** : 22 $ pour 1 visite par jour (1 h incluant la promenade de 30 min), 35 $ pour 2 visites par jour (30 min incluant la promenade de 15 min). Tarif additionnel de 8 $ par animal supplémentaire.
+* 1 visite par jour. Si vous habitez proche de chez moi, j'accepte 2 visites par jour.
+* **Tarif pour les chats, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques** : 20 $ pour 1 visite par jour (1 h), 35 $ pour 2 visites par jour (30 min).
+* **Tarif pour les chiens** : 25 $ pour 1 visite par jour (1 h incluant la promenade de 30 min), 45 $ pour 2 visites par jour (30 min incluant la promenade de 15 min). Tarif additionnel de 8 $ par animal supplémentaire.
 * Possibilité d'organiser une visioconférence (via Zoom ou Meet) pour voir l'animal, ses affaires et discuter de ses besoins.
 * Première rencontre gratuite avec remise des clés (port du masque svp)
 * Nettoyage de la litière
