@@ -47,6 +47,7 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 * Intelligence, perceptions et émotions du chat (2 et 9 juillet 2020), conférence en ligne Chatvoir – Éduchateur
 * Communications, agressions et mythes (30 juillet et 6 août 2020), conférence en ligne Chatvoir – Éduchateur
 * Tout savoir pour un chat sans problème (3 et 10 décembre 2020), conférence en ligne Chatvoir – Éduchateur
+* Conférence sur l'intelligence des poissons (23 avril 2021), Sébastien Moro, Vulgarisateur scientifique dans le domaine de la cognition animale. 
 
 &nbsp;
 
