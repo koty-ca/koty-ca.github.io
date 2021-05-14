@@ -1,7 +1,7 @@
 
 ## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR CHATS, CHIENS, OISEAUX, RONGEURS, LAPINS, ANIMAUX EXOTIQUES. 
 
-**Vous comptez partir cet été mais vous n'avez pas encore les dates exactes de votre absence pour pouvoir réserver sur Pawshake, ce n'est pas grave. Écrivez-moi dans un premier temps pour me donner des dates approximatives afin que je puisse évaluer le nombre de clients potentiels pour cet été. Ca sera aussi pour vous l'occasion de me poser des questions pour la garde : stephanie@koty.ca. Au plaisir.**
+**Vous comptez partir cet été mais vous n'avez pas encore les dates exactes de votre absence pour pouvoir réserver sur Pawshake, ce n'est pas grave. Écrivez-moi dans un premier temps pour me donner des dates approximatives afin que je puisse planifier mes gardes pour cet été. Ça sera aussi pour vous l'occasion de me poser des questions : stephanie@koty.ca. Au plaisir.**
 
 J’habite le secteur du Triangle à Montréal. J'ai surtout de l’expérience avec les chats mais je suis ouverte à garder d’autres animaux (chiens, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques). 
 Je suis inscrite sur Pawshake qui est une plateforme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
