@@ -1,9 +1,7 @@
 
 ## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR CHATS, CHIENS, OISEAUX, RONGEURS, LAPINS, ANIMAUX EXOTIQUES. 
 
-**Vous comptez partir cet été mais vous n'avez pas encore les dates exactes de votre absence pour pouvoir réserver sur Pawshake, ce n'est pas grave. Écrivez-moi dans un premier temps pour me donner des dates approximatives afin que je puisse planifier mes gardes pour cet été. Ça sera aussi pour vous l'occasion de me poser des questions : stephanie@koty.ca. Au plaisir.**
-
-J’habite le secteur du Triangle à Montréal. J'ai surtout de l’expérience avec les chats mais je suis ouverte à garder d’autres animaux (chiens, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques). 
+J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi. J'ai surtout de l’expérience avec les chats mais je suis ouverte à garder d’autres animaux (chiens, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques). 
 Je suis inscrite sur Pawshake qui est une plateforme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
 
 Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime jouer avec eux, j’aime créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles et des photos régulièrement de vos petits amours !
@@ -11,9 +9,6 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 &nbsp;
 
 ## MES SERVICES
-* 1 ou 2 visites par jour.   
-* **Tarif pour les chats, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques** : 20 $ pour 1 visite par jour (1 h), 34 $ pour 2 visites par jour (30 à 45 min chaque).
-* **Tarif pour les chiens** : 24 $ pour 1 visite par jour (1 h incluant la promenade de 30 min), 44 $ pour 2 visites par jour (30 à 45 min chaque incluant la promenade de 20 min). Tarif additionnel de 5 $ par animal supplémentaire.
 * Possibilité d'organiser une visioconférence (via Meet, Zoom ou Teams) pour voir l'animal, ses affaires et discuter de ses besoins.
 * Première rencontre gratuite avec remise des clés (port du masque svp)
 * Nettoyage de la litière
@@ -36,7 +31,7 @@ Vous pouvez consulter mon profil et les appréciations de mes clients en vous re
 
 &nbsp;
 
-## PRISE DE RENDEZ-VOUS ET PAIEMENT 
+## TARIFS, PRISE DE RENDEZ-VOUS ET PAIEMENT 
 **Seulement** par la plateforme de réservation [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-chiens-oiseaux-rongeurs-lapins-animaux-exotiques-3785857). 
 
 &nbsp;
