@@ -9,7 +9,6 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 &nbsp;
 
 ## MES SERVICES
-* **Nouveauté septembre 2021 : Durant la Covid et le télétravail, votre animal et vous étiez tout le temps ensemble et maintenant, en septembre, vous reprenez en présentiel ce qui peut entraîner des problèmes de comportement de votre animal comme l'anxiété de séparation. Pour cela, je peux vous proposer un forfait demi-journée pour passer du temps avec votre animal et ainsi atténuer le changement de la routine qui s'était installée entre vous et lui durant la Covid. Sensible au bien-être animal, nous trouverons ensemble un plan qui permettra à vous et à votre animal de mieux vivre ce changement ou pourrait-on dire ce retour à la normale. Je ne fais pas que des gardes donc le forfait demi-journée dépendra aussi de mes disponibilités. La durée exacte de la demi-journée et le tarif seront à discuter avec vous.**
 * Possibilité d'organiser une visioconférence (via Meet, Zoom ou Teams) pour voir l'animal, ses affaires et discuter de ses besoins.
 * Première rencontre gratuite avec remise des clés (port du masque svp)
 * Nettoyage de la litière
