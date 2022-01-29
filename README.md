@@ -11,19 +11,19 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 ## MES SERVICES
 * Possibilité d'organiser une visioconférence (via Meet, Zoom ou Teams) pour voir l'animal, ses affaires et discuter de ses besoins.
 * Première rencontre gratuite avec remise des clés (port du masque svp)
+* Visites : une visite par jour en fin d'après-midi d'une durée de 45 min à 1h
 * Nettoyage de la litière
 * Nourriture sèche, humide et, eau.
 * Câlins
-* Brossage
+* Brossage mais pas de toilettage ni coupe de griffes
 * Jeux
-* Médication (si besoin)
+* Pas de médication (sauf si l'animal a l'habitude de se laisser faire), pas d'injection.
 * Ramassage du courrier
 * Arrosage des plantes
 * Aération du domicile
 * Achat de nourriture si besoin (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d'achats à faire)
-* Rapport après chaque visite avec photos (via plateforme Pawshake)
+* Rapport après chaque visite avec photos (par e-mail ou plateforme Pawshake)
 * Possibilité d'organiser une visioconférence (via Meet, Zoom ou Teams) pour voir votre animal en direct durant votre absence
-* Nettoyage à ma dernière visite : les poignées de portes, les surfaces touchées et les jouets (COVID-19)
 * Retour des clés gratuit au client ou arrangement pour les laisser dans un endroit sécuritaire ou à un concierge (directement à lui ou dans sa boîte aux lettres par exemple)
 * Pourboires acceptés en argent comptant ou par virement Interac
 
