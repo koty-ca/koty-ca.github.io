@@ -1,7 +1,7 @@
 
-## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR CHATS, CHIENS, OISEAUX, RONGEURS, LAPINS, ANIMAUX EXOTIQUES. 
+## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR LES CHATS DU TRIANGLE (MONTRÉAL, CDN) 
 
-J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi. J'ai surtout de l’expérience avec les chats mais je suis ouverte à garder d’autres animaux (chiens, oiseaux, hamsters et autres petits rongeurs, lapins, animaux exotiques). 
+J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi. J'ai surtout de l’expérience avec les chats mais je suis aussi intéressée pour d'autres animaux : chiens saucisses (seulement), oiseaux, lapins, animaux exotiques. 
 Je suis inscrite sur Pawshake qui est une plateforme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
 
 Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime jouer avec eux, j’aime créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles et des photos régulièrement de vos petits amours !
@@ -9,9 +9,8 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 &nbsp;
 
 ## MES SERVICES
-* Possibilité d'organiser une visioconférence (via Meet, Zoom ou Teams) pour voir l'animal, ses affaires et discuter de ses besoins.
-* Première rencontre gratuite avec remise des clés (port du masque svp)
-* Visites : une visite par jour en fin d'après-midi d'une durée de 45 min à 1h
+* Première rencontre pour voir l'animal et discuter de ses besoins, remise des clés et finalisation de la réservation. 
+* Visites : une visite par jour d'1h
 * Nettoyage de la litière
 * Nourriture sèche, humide et, eau.
 * Câlins
@@ -21,18 +20,18 @@ Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime joue
 * Ramassage du courrier
 * Arrosage des plantes
 * Aération du domicile
-* Achat de nourriture si besoin (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d'achats à faire)
-* Rapport après chaque visite avec photos (par e-mail ou plateforme Pawshake)
-* Possibilité d'organiser une visioconférence (via Meet, Zoom ou Teams) pour voir votre animal en direct durant votre absence
-* Retour des clés gratuit au client ou arrangement pour les laisser dans un endroit sécuritaire ou à un concierge (directement à lui ou dans sa boîte aux lettres par exemple)
+* Achat de nourriture seulement et si besoin (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d’achats à faire)
+* Rapport après chaque visite avec photos 
+* Possibilité d’organiser une visioconférence (via Meet, Zoom ou Teams) pour voir votre animal en direct durant votre absence
+* Retour des clés au client ou arrangement pour les laisser dans un endroit sécuritaire ou à un concierge (directement à lui ou dans sa boîte aux lettres par exemple)
 * Pourboires acceptés en argent comptant ou par virement Interac
 
-Vous pouvez consulter mon profil et les appréciations de mes clients en vous rendant à [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-chiens-oiseaux-rongeurs-lapins-animaux-exotiques-3785857).
+Vous pouvez consulter mon profil et les appréciations de mes clients en vous rendant à [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/les-chats-du-triangle-cdn-3785857).
 
 &nbsp;
 
 ## TARIFS, PRISE DE RENDEZ-VOUS ET PAIEMENT 
-**Seulement** par la plateforme de réservation [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/chats-chiens-oiseaux-rongeurs-lapins-animaux-exotiques-3785857). 
+**Seulement** par la plateforme de réservation [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/les-chats-du-triangle-cdn-3785857). 
 
 &nbsp;
 
