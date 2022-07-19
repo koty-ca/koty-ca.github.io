@@ -1,10 +1,11 @@
 
 ## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR LES CHATS DU TRIANGLE (MONTRÉAL, CDN) 
 
-J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi. J'ai surtout de l’expérience avec les chats mais je suis aussi intéressée pour d'autres animaux : chiens saucisses (seulement), oiseaux, lapins, animaux exotiques. 
-Je suis inscrite sur Pawshake qui est une plateforme permettant de mettre en relation gardiens et clients pour rendre un service de gardiennage pour animaux de compagnie. 
+J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi car je suis en transport en commun. J'ai surtout de l’expérience avec les chats mais je suis aussi intéressée pour d'autres animaux : chiens saucisses (seulement car je n'ai pas d'expérience avec les chiens et je fais une fixette sur les chiens saucisses), oiseaux, lapins, animaux exotiques. J'aime les animaux et la nature.
 
-Ma force est le temps que j’accorde à vos animaux de compagnie. J’aime jouer avec eux, j’aime créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles et des photos régulièrement de vos petits amours !
+Ma force est le temps que j’accorde à vos animaux de compagnie. Je peux rester facilement 1h en après-midi ou fin de journée. Depuis mon enfance, j'ai un grand intérêt pour les félins. Je nourrissais les chats de mon quartier et j'avais envie de les suivre partout. Ils me fascinaient, m'intriguaient et je les trouvais très beaux. Ma chambre était placardée d'affiches de chats de toutes races. J'ai eu une chatte atteinte de cardiomyopathie donc je connais bien cette (foutue) maladie. Je n'ai qu'une chatte actuellement que j'ai adopté en refuge mais je m'en occupe bien, elle est pourrie gâtée et je sais que je pourrais lui payer des soins vétérinaires si elle a besoin. Je voudrais plus d'animaux chez moi mais je vis en appartement et ça coûte de l'argent alors je préfère visisiter ceux des autres par plaisir et pour en apprendre plus notamment sur les félins. J'ai aussi suivi quelques cours en comportement félin et je sais lire le langage corporel du chat... 
+
+Durant une visite, j’aime beaucoup jouer avec le chat, le brosser, susciter son intérêt et ainsi créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles régulièrement et des photos (en masse) de vos petits amours ! :-)
 
 &nbsp;
 
