@@ -1,9 +1,9 @@
 
 ## SERVICE DE GARDIENNAGE AVEC VISITES À VOTRE DOMICILE POUR LES CHATS DU TRIANGLE (MONTRÉAL, CDN) 
 
-J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi car je suis en transport en commun. J'ai surtout de l’expérience avec les chats mais je suis aussi intéressée pour d'autres animaux : chiens saucisses (seulement car je n'ai pas d'expérience avec les chiens et je fais une fixette sur les chiens saucisses), oiseaux, lapins, animaux exotiques. J'aime les animaux et la nature.
+J’habite le secteur du Triangle à Montréal. Je privilégie les gardes proches de chez moi car je suis en transports en commun. J'ai surtout de l’expérience avec les chats mais je suis aussi intéressée pour d'autres animaux : chiens saucisses (seulement car je n'ai pas d'expérience avec les chiens et je fais une fixette sur les chiens saucisses), oiseaux, lapins, animaux exotiques. J'aime les animaux et la nature.
 
-Ma force est le temps que j’accorde à vos animaux de compagnie. Je peux rester facilement 1h en après-midi ou fin de journée. Depuis mon enfance, j'ai un grand intérêt pour les félins. Je nourrissais les chats de mon quartier et j'avais envie de les suivre partout. Ils me fascinaient, m'intriguaient et je les trouvais très beaux. Ma chambre était placardée d'affiches de chats de toutes races. J'ai eu une chatte atteinte de cardiomyopathie donc je connais bien cette (foutue) maladie. Je n'ai qu'une chatte actuellement que j'ai adopté en refuge mais je m'en occupe bien, elle est pourrie gâtée et je sais que je pourrais lui payer des soins vétérinaires si elle a besoin. Je voudrais plus d'animaux chez moi mais je vis en appartement et ça coûte de l'argent alors je préfère visisiter ceux des autres par plaisir et pour en apprendre plus notamment sur les félins. J'ai aussi suivi quelques cours en comportement félin et je sais lire le langage corporel du chat... 
+Ma force est le temps que j’accorde à vos animaux de compagnie. Je peux rester facilement 1h en après-midi ou fin de journée. Depuis mon enfance, j'ai un grand intérêt pour les félins. Je nourrissais les chats de mon quartier et j'avais envie de les suivre partout. Ils me fascinaient, m'intriguaient et je les trouvais très beaux. Ma chambre était placardée d'affiches de chats de toutes races. J'ai eu une chatte atteinte de cardiomyopathie donc je connais bien cette (foutue) maladie. Je n'ai qu'une chatte actuellement que j'ai adopté en refuge et qui est sur une diète vétérinaire hypoallergénique pour son intestin. Je voudrais plus d'animaux chez moi mais cela prend du temps, de l'argent et je vis en appartement alors je préfère visiter ceux des autres par plaisir et pour en apprendre plus notamment sur les félins. J'ai aussi suivi quelques cours en comportement félin et je sais lire le langage corporel du chat... 
 
 Durant une visite, j’aime beaucoup jouer avec le chat, le brosser, susciter son intérêt et ainsi créer un lien ! Que votre chat soit timide ou joueur, je m’adapterai à sa personnalité car mon but est de rendre ma visite positive pour l’animal et que le client soit satisfait à son retour. Partez l’esprit tranquille, vous recevrez des nouvelles régulièrement et des photos (en masse) de vos petits amours ! :-)
 
@@ -11,21 +11,22 @@ Durant une visite, j’aime beaucoup jouer avec le chat, le brosser, susciter so
 
 ## MES SERVICES
 * Première rencontre pour voir l'animal et discuter de ses besoins, remise des clés et finalisation de la réservation. 
-* Visites : une visite par jour d'1h
+* Visites : une visite par jour d'1h, en général en après-midi ou fin de journée.
 * Nettoyage de la litière
 * Nourriture sèche, humide et, eau.
 * Câlins
-* Brossage mais pas de toilettage ni coupe de griffes
+* Brossage mais pas de coupe de griffes
 * Jeux
-* Pas de médication (sauf si l'animal a l'habitude de se laisser faire), pas d'injection.
+* Pas de sorties pour des raisons de sécurité (même en harnais, il peut s'en défaire car on a tendance à pas trop le serrer pour que le chat soit confortable). Je sors quand même la mienne sur le balcon mais c'est ma chatte ; je ne veux pas prendre de risques pour les animaux des autres, c'est différent.
+* Pas de médication sauf si prise facile avec de la nourriture (ce qui est rarement le cas car les médicaments ont un goût amer que le chat sent même avec beaucoup de pâté ou même du thon), pas d'injection. 
 * Ramassage du courrier
 * Arrosage des plantes
 * Aération du domicile
-* Achat de nourriture seulement et si besoin (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d’achats à faire)
+* Achat de nourriture seulement et pas de litière car c'est souvent lourd (Remboursement des achats avec ticket de caisse via virement Interac ou argent comptant laissé lors de la première rencontre en prévoyance d’achats à faire)
 * Rapport après chaque visite avec photos 
 * Possibilité d’organiser une visioconférence (via Meet, Zoom ou Teams) pour voir votre animal en direct durant votre absence
 * Retour des clés au client ou arrangement pour les laisser dans un endroit sécuritaire ou à un concierge (directement à lui ou dans sa boîte aux lettres par exemple)
-* Pourboires acceptés en argent comptant ou par virement Interac
+* Pourboires acceptés en argent comptant ou par virement Interac notamment pour compenser un peu les frais de déplacement en transports en commun.
 
 Vous pouvez consulter mon profil et les appréciations de mes clients en vous rendant à [Pawshake.ca](https://fr.pawshake.ca/garde-animaux/montreal-qc/les-chats-du-triangle-cdn-3785857).
 
